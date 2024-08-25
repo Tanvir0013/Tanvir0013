@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning android app ddevelopment
 - 💞️ I’m looking to collaborate on deprived people of our society
 - 📫 If you want to contact with me please whatsapp +8801723236513
-- 😄 Pronouns: ...
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
 <!---
